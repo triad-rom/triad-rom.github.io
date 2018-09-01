@@ -1,1 +1,0 @@
-# triad-rom.github.io
